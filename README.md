@@ -1,2 +1,2 @@
 # Thinkopolis
-Thinkopolis is a world-building pilot project exploring history, science, philosophy  through short-form content.
+Thinkopolis is a world-building project exploring history, science, fiction and civilization through short-form content. Rather than separating nonfiction and storytelling, Thinkopolis combines them into a single evolving world. It explores how world building and show running can become a framework for organizing ideas across many forms of content. The project is both a creative work and a working model in the emerging practice of world building as a publishing strategy—a model that other creators can study, adapt, and build upon.
