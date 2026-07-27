@@ -73,5 +73,7 @@ That's about it. SWe're all standed here in the American Dream, and I write Thin
 
 I’ll see you in the next episode.
 
+Check out the EPISIDE INDEX.
+
 <img width="540" height="960" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
 
