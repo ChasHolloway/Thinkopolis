@@ -10,3 +10,8 @@ Star Wars, Harry Potter, and Game of Thrones are classic examples. Each created 
 Today, world building has expanded far beyond Hollywood. Independents creating mking podcasts, YouTube channels, and other online content are discovering what Hollywood has known for decades. Success is less about getting clicks and more about creating a world people want to revisit. Engagement, not clickbait, is becoming the new measure of success. Audiences come back because they feel connected to a familiar world that continues to develop over time.
 
 Thinkopolis extends the idea of world building beyond its traditional boundaries. It combines both fiction and non-fiction into a single, evolving world where historical facts and fictional stories reinforce one another. The project explores how far world building can be taken. As these boundaries continue to expand, blending fiction and non-fiction may open entirely new forms of storytelling and push today's genres into new frontiers.
+
+# Welcome to Thinkopolis
+
+<img width="1200" height="800" alt="lost banner 1" src="https://github.com/user-attachments/assets/6940d139-fcd7-4fb9-86c5-7e0ea8a4a0a2" />
+
