@@ -3,6 +3,7 @@ Thinkopolis is a world-building project exploring history, science, fiction and 
 
 ## Traditional World Building
 In Hollywood, world building is more than creating a setting. It means creating a complete fictional reality that can produce stories for years. Writers and producers design worlds with their own history, rules, cultures, conflicts, and recurring characters. The goal is to create a place that feels real enough for audiences to return to again and again.
+
 Star Wars, Harry Potter, and Game of Thrones are classic examples. Each created a world large enough to support countless stories. Audiences return not just because they like the heroes, but because they enjoy spending time in those worlds. Successful world building is a story engine capable of generating endless new content.
 
 ## Modern Changes
