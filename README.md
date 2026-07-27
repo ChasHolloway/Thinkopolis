@@ -73,5 +73,5 @@ That's about it. SWe're all standed here in the American Dream, and I write Thin
 
 I’ll see you in the next episode.
 
-<img width="832" height="1600" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
+<img width="400" height="600" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
 
