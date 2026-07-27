@@ -13,5 +13,5 @@ Thinkopolis extends the idea of world building beyond its traditional boundaries
 
 # Welcome to Thinkopolis
 
-<img width="1200" height="800" alt="lost banner 1" src="https://github.com/user-attachments/assets/6940d139-fcd7-4fb9-86c5-7e0ea8a4a0a2" />
+<img width="900" height="600" alt="lost banner 1" src="https://github.com/user-attachments/assets/6940d139-fcd7-4fb9-86c5-7e0ea8a4a0a2" />
 
