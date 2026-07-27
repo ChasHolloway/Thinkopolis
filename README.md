@@ -75,7 +75,7 @@ I’ll see you in the next episode.
 
 If you're on Github, check out the EPISIDE INDEX.
 
-Oh yeah, I almost forgot. Every news column's gotta have a home office. Thinkopolis is on Substack. If you're looking for the full case files, you can get to it by clicking [HERE](https://thinkopolis.substack.com).
+Oh yeah, I almost forgot. Every news column's gotta have a home office. Thinkopolis is on Substack. If you're looking for the full case files, You can get to it by clicking [HERE](https://chasholloway.substack.com).
 
 
 <img width="540" height="960" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
