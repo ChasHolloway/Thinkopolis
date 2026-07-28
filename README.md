@@ -1,5 +1,7 @@
 # Thinkopolis
-Thinkopolis is a world-building project exploring history, science, fiction and civilization through short-form content. Rather than separating nonfiction and storytelling, Thinkopolis combines them into a single evolving world. It explores how world building and show running can become a framework for organizing ideas across many forms of content. The project is both a creative work and a working model in the emerging practice of world building as a publishing strategy—a model that other creators can study, adapt, and build upon.
+Thinkopolis is a world-building project that pushes the limits of what world building can be. It encompasses the real events, people, and oddities of Western civilization while also weaving fiction into a single evolving narrative.
+Rather than separating nonfiction and fictional storytelling, Thinkopolis blends them into a single world. It is both a creative work and a model for world building as an emerging publishing strategy. Creators can study it, adapt it, and build upon it.
+Thinkopolis is a blueprint for exploring the limits of world building for the next generation of content creation.
 
 ## Traditional World Building
 In Hollywood, world building is more than creating a setting. It means creating a complete fictional reality that can produce stories for years. Writers and producers design worlds with their own history, rules, cultures, conflicts, and recurring characters. The goal is to create a place that feels real enough for audiences to return to again and again.
