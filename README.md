@@ -1,6 +1,8 @@
 # Thinkopolis
 Thinkopolis is a world-building project that pushes the limits of what world building can be. It encompasses the real events, people, and oddities of Western civilization while also weaving fiction into a single evolving narrative.
+
 Rather than separating nonfiction and fictional storytelling, Thinkopolis blends them into a single world. It is both a creative work and a model for world building as an emerging publishing strategy. Creators can study it, adapt it, and build upon it.
+
 Thinkopolis is a blueprint for exploring the limits of world building for the next generation of content creation.
 
 ## Traditional World Building
