@@ -4,7 +4,7 @@
 
 ## Listen to the Episode
 
-[▶️ CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK]([https://chasholloway.substack.com/YOUR-EPISODE-URL](https://chasholloway.substack.com/p/brandi-lane)
+[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://chasholloway.substack.com/p/brandi-lane)
 
 not here
 
