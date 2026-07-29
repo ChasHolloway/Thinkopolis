@@ -1,4 +1,4 @@
-# Brandi Lane Sings
+# Brandi Lane
 
 <img src="Brandi%20Song%201.gif" width="500">
 
@@ -16,7 +16,7 @@ This episode introduces Brandi and the post apocalyptic jungle world of the Amer
 
 Brandi Lane
 (DRAFT: 1-1-2025)
-by Chas Holloway
+by Chas Holloway,
 286 words
 
 ARCH ADAMS:
