@@ -71,9 +71,13 @@ Oh yeah, you’ve got to have a villain. So here in the American Dream, it’s t
 
 We can't forget Rob and Mel. They’re survivors of the Little War. They used to have this Rumble channel before the fall, now they own a bar at what used to be Hollywood and Vine. They broadcast a radio show now that's heard all across the jungles of Los Angeles -- and they’re not exactly fans of our overbearing Governor.
 
+# See You in Thinkopolis
+
 <img width="900" height="600" alt="Arch 3" src="https://github.com/user-attachments/assets/d5643769-dcac-4a45-bd37-fa3d8c81338e" />
 
 Me, and the others, we’re not interested in the Governor’s leash, either. The jungle roars, and that’s the way we like it. Which side wins? The way I see it: the Governor's on the side of coercion; we're on the side of freedom. But the jungle answers only to itself.
+
+Check out the resources below.
 
 # Thinkopolis Resources
 
@@ -89,7 +93,9 @@ The Future of World Building
 
 Oh yeah, I almost forgot. The Thinkopolis home office is on Substack. If you're looking for more episodes and the full case files, You can get there by clicking [HERE](https://chasholloway.substack.com).
 
-We'll see you in Thinkopolis.
+If you'd like to support the Thinkopolis Project, please subscribe to the Substack -- and become a paid subscriber.
+
+See you in the next episode...
 
 <img width="540" height="960" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
 
