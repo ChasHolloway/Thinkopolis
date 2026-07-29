@@ -56,3 +56,8 @@ People had no idea…
 I’ll tell you more about the American dream in upcoming episode of Thinkopolis.
 
 I’m Chas Holloway.
+
+## More Thinkopolis episodes can be found at: chasholloway.substack.com
+
+[Or by clicking HERE](https://chasholloway.substack.com)
+
