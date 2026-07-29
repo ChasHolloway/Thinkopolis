@@ -8,7 +8,9 @@
 
 ## TEASER:
 
-Hollywood is gone. Civilization is gone. But every night, brandi lane still climbs onto a jungle stage and reminds the survivors what they lost. ARCH ADAMS introduces Brandi and the strange world of the American Dream.
+Hollywood is gone. Civilization is gone. But every night, BRANDI LANE still climbs onto a jungle stage and reminds the survivors what they lost. ARCH ADAMS introduces Brandi and the strange world of the American Dream. 
+
+This episode introduces Brandi and the post apocalyptic jungle world of the American Dream. It's narrated in the voice of Arch Adams -- but we haven't introduced who Arch is yet. 
 
 ## THE SCRIPT
 
