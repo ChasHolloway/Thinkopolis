@@ -10,7 +10,7 @@
 
 Who is Arch Adams, and why is he wandering through the American Dream? In this episode, the narrator of Thinkopolis introduces himself—as the alter ego behind Thinkopolis. Trapped inside Chas Holloway’s head, and trapped inside the American Dream, he sends ideas to “the typist” who turns them into stories.
 
-This episode introduces Arch Adams, who is the regular voice of Thinkopolis. Brandi Lane was introduced in the previous episode - so the Thinkopolis world now has an exotic jungle setting along with 2-point character opposition. 
+This episode introduces Arch Adams, who is the regular voice of Thinkopolis. Brandi Lane was introduced in the previous episode - so the Thinkopolis world has reinforced the post apocalyptic jungle setting, and now has established 2-point character opposition.
 
 # THE SCRIPT
 
