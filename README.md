@@ -49,40 +49,47 @@ Brandi’s got the talent to light up every silver screen in America if she'd ha
 
 After building cold fusion generators to power a few islands in the jungle, he invented a special kind of craft he calls the “Cognitron," that looks like a steampunk jumble brass and instruments and gears. He built the Cognitron to navigate the thought waves of civilization, and the Doc lets Arch Adams use it to explore the American Dream.
 
-## There's Arch Adams
+## Arch Adams
 
 <img width="319" height="406" alt="arch 2" src="https://github.com/user-attachments/assets/4fa21e1e-ac68-475c-b41b-debb5a9ce98f" />
 
-And there’s me. Arch Adams. I’m the one who writes Thinkopolis. Sure, there’s a guy named Chas Holloway out there somewhere in the real world who thinks he’s in charge, but I’m the real brains of the outfit. I’m his alter ego. I’m the creative side of his mind. He's just a glorified typist. He couldn’t tie his shoes without me.
+And there’s me. Arch Adams. I’m the one who writes Thinkopolis. Sure, there’s a guy named Chas Holloway out there somewhere in the real world who thinks he’s in charge, but I’m the real brains of the outfit. I’m his alter ego. I’m the creative side of his mind. Him? He's a glorified typist. He couldn’t tie his shoes without me.
 
 <img width="319" height="509" alt="birds 1" src="https://github.com/user-attachments/assets/3f0929c1-f9ce-44d7-8c29-db9428c402f1" />
 
 ## Gettin the Picture?
 
-Thinkopolis has the feel of an old newspaper column, but its spinoff, Lost in the American Dream, has the feel of a cartoon strip world. We’re a community of survivors in the future jungles of Los Angeles.
+Thinkopolis has the feel of an old newspaper column, while Lost in the American Dream, has the feel of a cartoon strip world. We’re a community of survivors in the post apocalyptic jungles of America.
 
 <img width="900" height="600" alt="cap city 2" src="https://github.com/user-attachments/assets/b9d64bbc-4754-4d8f-8a6e-f0b61def8903" />
 
-Oh yeah, by the way, in a story world, you’ve got to have a villain. In this case, it’s the Governor of Los Angeles. A bulldog kinda creep barking orders from his HQ in Capital City, he wants to make the jungle walk in step to his rules. He’s a tyrant who wants to tame the jungle. We’d rather see it wild.
+Oh yeah, you’ve got to have a villain. So here in the American Dream, it’s the Governor of Los Angeles. He's a bulldog who barks orders from his HQ in Capital City, and tries to make the jungle walk in step to his rules. Just like the tyrants of old who caused the Little War, he's a tyrant who wants to tame the jungle. We’d rather see it wild.
 
 ## Rob & Mel
 
 <img width="319" height="454" alt="Rob   mel" src="https://github.com/user-attachments/assets/67a4f074-cebf-4e17-97d3-a9392fb9dade" />
 
-And we can't forget Rob and Mel. They’re survivors of the Little War. They used to have this Rumble channel before the fall, now they own a bar in the American Dream located at what used to be Hollywood and Vine. They broadcast a radio show now, and it’s heard all around the jungles of Los Angeles, and they’re not exactly fans of our overbearing Governor.
+We can't forget Rob and Mel. They’re survivors of the Little War. They used to have this Rumble channel before the fall, now they own a bar at what used to be Hollywood and Vine. They broadcast a radio show now that's heard all across the jungles of Los Angeles -- and they’re not exactly fans of our overbearing Governor.
 
 <img width="900" height="600" alt="Arch 3" src="https://github.com/user-attachments/assets/d5643769-dcac-4a45-bd37-fa3d8c81338e" />
 
-Me, and the others, we’re not interested in the Governor’s leash, either. The jungle roars, and that’s the way we like it. Which side wins? The way I see it: we're on the side of freedom, and all, but the jungle answers only to itself.
+Me, and the others, we’re not interested in the Governor’s leash, either. The jungle roars, and that’s the way we like it. Which side wins? The way I see it: the Governor's on the side of coercion; we're on the side of freedom. But the jungle answers only to itself.
 
-That's about it. SWe're all standed here in the American Dream, and I write Thinkoplis to eek out a living. 
+# Thinkopolis Resources
 
-I’ll see you in the next episode.
+These will soon all be active links:
 
-If you're on Github, check out the EPISIDE INDEX.
+Episode Index
+Thinkopolis Concept Map
+Fundamentals of Plot
+Fundamentals of Character
+World Building
+The History of Story Construction
+The Future of World Building
 
-Oh yeah, I almost forgot. Every news column's gotta have a home office. Thinkopolis is on Substack. If you're looking for the full case files, You can get to it by clicking [HERE](https://chasholloway.substack.com).
+Oh yeah, I almost forgot. The Thinkopolis home office is on Substack. If you're looking for more episodes and the full case files, You can get there by clicking [HERE](https://chasholloway.substack.com).
 
+We'll see you in Thinkopolis.
 
 <img width="540" height="960" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
 
