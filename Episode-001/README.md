@@ -4,6 +4,8 @@
 
 ## Listen to the Episode
 
-[Play the MP3](Brandi-Song-1.mp3)
+[▶️ CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK]([https://chasholloway.substack.com/YOUR-EPISODE-URL](https://chasholloway.substack.com/p/brandi-lane)
+
+not here
 
 script here
