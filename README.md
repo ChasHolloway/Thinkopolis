@@ -33,9 +33,9 @@ That’s why everyday Joes are getting reeled in. Thinkopolis makes you think. I
 
 You might be wondering who comes up with this stuff.
 
-That’s the secret to why Thinkopolis hits big. See, in this world you get to know the cast of characters who actually create and write Thinkopolis. Like Arch Adams, and Brandi Lane, Doc Arkon, Holden Pott, who was the last of the beats and the first hippie, and Haydn Jones, and Rob & Mel. They all wound up here in the American Dream, one way or another, and now they’re stranded.
+That’s the secret to why Thinkopolis hits big. See, in this world you get to know the cast of characters who actually create Thinkopolis. Like Arch Adams and Brandi Lane, Doc Arkon and Holden Pott, who was the last of the beats and the first hippie. Haydn Jones, a revolutionary war hero. Rob & Mel who broadcast their radio show from a secret bunker underneath Hollywood & Vine. They all wound up here in the American Dream, one way or another, and now they’re stranded.
 
-Turns out the American Dream is a real place. But it’s not about little houses behind white picket fences anymore. It’s about a post-apocalyptic future after the Little War turned Los Angeles into a radioactive jungle.
+Turns out the American Dream is a real place. But it’s not little houses behind white picket fences anymore. It’s a post-apocalyptic future after the Little War turned Los Angeles into a radioactive jungle.
 
 ## There's Brandi Lane
 
