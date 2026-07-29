@@ -61,3 +61,15 @@ I’m Chas Holloway.
 
 [Or by clicking HERE](https://chasholloway.substack.com)
 
+## World Building Concepts in this episode
+
+Characters: Arch Adams, Brandi Lane
+
+Setting: The American Dream, Hollywood Boulevard
+
+Timeline: After the Little War
+
+Series: Thinkopolis
+
+
+
