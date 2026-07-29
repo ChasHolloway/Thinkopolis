@@ -49,15 +49,17 @@ Oh yeah, you’re in Thinkopolis — in case you didn’t know.
 
 END
 
-# [More Thinkopolis episodes can be found at:](https://chasholloway.substack.com)
+## [More Thinkopolis episodes can be found at:](https://chasholloway.substack.com)
 
-Or by clicking HERE
+[Or by clicking HERE](https://chasholloway.substack.com)
 
-# World Building Concepts in this Episode
+## World Building Concepts in this Episode
 
 Characters: Arch Adams, Chas Holloway (the typist)
 
 Setting: Because Chas Holloway got an assignment to write a column called "Thinkopolis" about America, Arch Adams is lost in the American Dream.
+
+Length: 2:26
 
 
 
