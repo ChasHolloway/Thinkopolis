@@ -19,11 +19,11 @@ Thinkopolis extends the idea of world building beyond its traditional boundaries
 
 <img width="900" height="600" alt="welcome to think" src="https://github.com/user-attachments/assets/12d7acb8-2867-475b-bea3-750180d0a187" />
 
-## So, What Is This Place?
+## What Kinda Place Is This?
 
-Thinkopolis, it’s a short-from podcast with ambient video. Sure, you can say that — but it’s more, a whole lot more. Think of it like a newspaper column from the 1940’s, the kind that kept you glued to your stale coffee all morning. A throwback to the days when a guy with a typewriter and a knack for spinning yarns could make you see sense in a world gone sideways.
+Thinkopolis. It’s a short-from podcast. Sure, you can say that — but it’s more, a whole lot more. Think of it like a newspaper column from the 1940’s, the kind that kept you glued to your stale coffee all morning. A throwback to the days when a guy with a typewriter and a knack for spinning yarns could make you see sense in a world gone sideways.
 
-Some episodes are about history’s big shots, like Scott Joplin, the guy who invented ragtime. Or Dr. Mesmer, the guy who invented hypnosis. Others are packed with legendary capers, like how a burglar once went in the Louvre and the Mona Lisa went missing right under everyone’s nose.
+Some episodes are about history’s big shots, like Euclid, wrote a geometry textbook that lasted two thousand years. Or Dr. Mesmer, the guy who invented hypnosis. Others episodes are packed with legendary capers, like how a burglar once went in the Louvre and the Mona Lisa went missing right under everyone’s nose.
 
 That’s why everyday Joes are getting reeled in. Thinkopolis makes you think. It hooks you with the good stuff, the kind of stories that slink through dark alleys and smoky bars. Some of it’s brainy. Some, funny. But every Thinkopolis episode’s got a pulse, a good story with a heartbeat, and a twist at the end.
 
