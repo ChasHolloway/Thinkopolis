@@ -37,23 +37,23 @@ That’s the secret to why Thinkopolis hits big. See, in this world you get to k
 
 Turns out the American Dream is a real place. But it’s not little houses behind white picket fences anymore. It’s a post-apocalyptic future after the Little War turned Los Angeles into a radioactive jungle.
 
-## There's Brandi Lane
+## Brandi Lane
 
 <img width="321" height="507" alt="brandi 1" src="https://github.com/user-attachments/assets/6e3cf54d-ee54-4566-9b3c-76dcb4a424a1" />
 
-Brandi’s got the talent to light up every silver screen in America if she had a chance. Too bad she was born a couple decades too late, after the Little War.
+Brandi’s got the talent to light up every silver screen in America if she'd had a chance. Too bad she was born after the Little War, decades too late.
 
-## There's Doc Arkon
+## Doc Arkon
 
-<img width="319" height="406" alt="Arkon 1" src="https://github.com/user-attachments/assets/d728dd12-3160-49e6-9781-2413d64414c9" />
+<img width="400" height="500" alt="Arkon w Cognitron" src="https://github.com/user-attachments/assets/3a6eca89-85ea-4459-a890-274cba5f4822" />
 
-After building a few thorium nuclear generators to power the jungle, he invented a special kind of craft he calls the “Cognitron,” a jumble of steampunk brass and instruments and gears. He built the Cognitron to navigate through society’s thought waves, and the Doc lets Arch Adams use it to explore the American Dream.
+After building cold fusion generators to power a few islands in the jungle, he invented a special kind of craft he calls the “Cognitron," that looks like a steampunk jumble brass and instruments and gears. He built the Cognitron to navigate the thought waves of civilization, and the Doc lets Arch Adams use it to explore the American Dream.
 
 ## There's Arch Adams
 
 <img width="319" height="406" alt="arch 2" src="https://github.com/user-attachments/assets/4fa21e1e-ac68-475c-b41b-debb5a9ce98f" />
 
-And there’s me, Arch Adams. I’m the one who writes Thinkopolis. Sure, there’s a guy named Chas Holloway out there somewhere in the real world who thinks he’s in charge, but I’m the real brains of the outfit. I’m his alter ego. I’m the creative side of his mind. The typist? He couldn’t tie his shoes without me.
+And there’s me. Arch Adams. I’m the one who writes Thinkopolis. Sure, there’s a guy named Chas Holloway out there somewhere in the real world who thinks he’s in charge, but I’m the real brains of the outfit. I’m his alter ego. I’m the creative side of his mind. He's just a glorified typist. He couldn’t tie his shoes without me.
 
 <img width="319" height="509" alt="birds 1" src="https://github.com/user-attachments/assets/3f0929c1-f9ce-44d7-8c29-db9428c402f1" />
 
