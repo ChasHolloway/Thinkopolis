@@ -49,7 +49,7 @@ Oh yeah, you’re in Thinkopolis — in case you didn’t know.
 
 END
 
-## [More Thinkopolis episodes can be found at: chasholloway.substack.com
+## More Thinkopolis episodes can be found at: chasholloway.substack.com
 
 [Or by clicking HERE](https://chasholloway.substack.com)
 
