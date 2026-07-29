@@ -19,7 +19,7 @@ Thinkopolis extends the idea of world building beyond its traditional boundaries
 
 <img width="900" height="600" alt="welcome to think" src="https://github.com/user-attachments/assets/12d7acb8-2867-475b-bea3-750180d0a187" />
 
-## So, Waht Is This Place?
+## So, What Is This Place?
 
 Thinkopolis, it’s a short-from podcast with ambient video. Sure, you can say that — but it’s more, a whole lot more. Think of it like a newspaper column from the 1940’s, the kind that kept you glued to your stale coffee all morning. A throwback to the days when a guy with a typewriter and a knack for spinning yarns could make you see sense in a world gone sideways.
 
