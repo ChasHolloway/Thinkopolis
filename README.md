@@ -1,4 +1,5 @@
 # Thinkopolis
+by Chas Holloway
 
 <img width="600" height="236" alt="ezgif com-resize" src="https://github.com/user-attachments/assets/ceb56f29-2aa1-4b83-8e1d-b7c1a914e0bb" />
 
