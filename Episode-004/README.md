@@ -88,7 +88,7 @@ END
 
 ## More Thinkopolis episodes can be found at: chasholloway.substack.com
 
-[OR BY CLICKING HERE]([link](https://chasholloway.substack.com)
+[OR BY CLICKING HERE](https://chasholloway.substack.com)
 
 ## World Building Concepts in this Episode:
 
