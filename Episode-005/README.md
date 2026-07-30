@@ -56,7 +56,7 @@ END
 
 ## World Building Concepts in this Episode:
 
-Characters: Chas Holloway/Arch Adams
+Characters: Chas Holloway/Arch Adams narrate.
 
 Setting: In the banner illustration, Hemingway is in the post apocalyptic jungle world of Los Angeles where the fictional characters we introduced in earlier episodes are lost in the American Dream.
 
