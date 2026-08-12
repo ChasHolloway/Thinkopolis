@@ -5,7 +5,7 @@ by Chas Holloway
 
 ## Listen to the Episode
 
-[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://chasholloway.substack.com/p/brandi-lane)
+[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://thinkgithubarchive.substack.com/p/brandi-lane)
 
 ## TEASER:
 
