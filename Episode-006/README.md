@@ -5,7 +5,7 @@ by Chas Holloway
 
 ## Listen to this Episode
 
-[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://chasholloway.substack.com/p/hypatia)
+[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://thinkgithubarchive.substack.com/p/s1-e06-hypatia)
 
 ## Teaser & World Build
 
