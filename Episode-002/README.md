@@ -5,7 +5,7 @@ by Chas Holloway
 
 ## Listen to This Episode
 
-[Click HERE to listen to this episode on Substack](https://chasholloway.substack.com/p/the-thinkopolis-files)
+[Click HERE to listen to this episode on Substack](https://thinkgithubarchive.substack.com/p/the-thinkopolis-files)
 
 # TEASER:
 
