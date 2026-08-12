@@ -5,7 +5,7 @@ by Chas Holloway
 
 ## Listen to the Episode
 
-[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://chasholloway.substack.com/p/henry-david-thoreau)
+[CLICK HERE TO PLAY THIS EPISODE ON SUBSTACK](https://thinkgithubarchive.substack.com/p/s1-e04-henry-david-thoreau)
 
 ## Teaser
 
