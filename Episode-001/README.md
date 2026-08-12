@@ -1,7 +1,7 @@
 # Brandi Lane
 by Chas Holloway
 
-<img src="Brandi%20Song%201.gif" width="500">
+<img width="500" height="333" alt="Brandi Song 1" src="https://github.com/user-attachments/assets/a37280b3-0e4a-4bab-881b-d0a2aaa41b15" />
 
 ## Listen to the Episode
 
