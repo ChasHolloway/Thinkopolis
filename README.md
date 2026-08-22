@@ -103,3 +103,19 @@ See you in the next episode...
 
 <img width="540" height="960" alt="birds 2" src="https://github.com/user-attachments/assets/f48c7261-af49-44a3-bbe8-c93849cf2171" />
 
+END
+
+## BANNERS
+
+<img width="1027" height="360" alt="Principle" src="https://github.com/user-attachments/assets/6a645eb6-f8e1-486b-9ef1-4c7ae7b14a45" />
+
+<img width="1083" height="367" alt="Example" src="https://github.com/user-attachments/assets/54832175-7be4-4e34-8ddc-c291a48bab9e" />
+
+<img width="1286" height="361" alt="Technique" src="https://github.com/user-attachments/assets/9b7e00cb-89d3-40ab-9fd0-bd362f41b8a2" />
+
+
+
+
+
+
+
